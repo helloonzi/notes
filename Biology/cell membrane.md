@@ -1,0 +1,1 @@
+> Controls the substances entering or leaving the cell; partially permeable

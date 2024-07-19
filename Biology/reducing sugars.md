@@ -1,0 +1,1 @@
+> Sugars which have reducing properties. They can reduce copper (II) salt in Benedict's solution to orange-red precipitate of copper (I) oxide when boiled

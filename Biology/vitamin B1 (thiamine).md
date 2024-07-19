@@ -1,0 +1,1 @@
+> Part of an enzyme needed to break down sugar to release energy for brain activities

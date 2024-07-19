@@ -1,0 +1,1 @@
+> H₂O; it is an inorganic compound

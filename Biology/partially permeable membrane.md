@@ -1,0 +1,1 @@
+> A membrane whereby only certain substances can pass through it

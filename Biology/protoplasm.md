@@ -1,0 +1,1 @@
+> the living part of the cell

@@ -1,0 +1,1 @@
+> Measure of tendency of water to enter or leave a solution to anther solution; always discussed in comparison between 2 solutions

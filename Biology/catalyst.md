@@ -1,0 +1,1 @@
+> Substance which can alter or speed up a chemical reaction, without itself being chemically changed at the end of the reaction

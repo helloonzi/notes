@@ -1,0 +1,1 @@
+> Where cell activities occur. Contains specialised structures called organelles

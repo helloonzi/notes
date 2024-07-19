@@ -1,0 +1,1 @@
+> solution which has a lower [[water potential]] than another solution (MORE concentrated)

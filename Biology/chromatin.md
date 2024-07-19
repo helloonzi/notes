@@ -1,0 +1,1 @@
+ >Made up of [[DNA]] which carries hereditary information. Condenses into [[chromosomes]] when the cell is dividing

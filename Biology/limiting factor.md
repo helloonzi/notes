@@ -1,0 +1,1 @@
+> a factor that directly affects the rate at which a process or chemical reaction occurs if its quantity is changed

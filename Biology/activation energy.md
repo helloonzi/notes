@@ -1,0 +1,1 @@
+> energy needed to start a chemical reaction

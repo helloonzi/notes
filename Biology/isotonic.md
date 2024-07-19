@@ -1,0 +1,1 @@
+> Solution which has the same water potential as another solution (same concentration)

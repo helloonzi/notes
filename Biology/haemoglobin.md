@@ -1,0 +1,1 @@
+> A protein containing iron which can readily and reversibly combine with oxygen to form oxyhaemoglobin

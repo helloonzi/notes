@@ -1,0 +1,1 @@
+> Protects the cell from injury and gives it a regular shape; fully permeable. It is found in plant cells but absent in animal cells

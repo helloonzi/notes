@@ -1,0 +1,1 @@
+>  large, dynamic structure that serves many roles in the cell. Consists of th4 [[rough endoplasmic reticulum]] and [[smooth endoplasmic reticulum]]
